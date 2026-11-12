@@ -22,7 +22,7 @@ Facebook Page: CIDUFE CFTG
 Threads: CIDUFE financial global
 YouTube: CIDUFE CFTG
 X: CIDUFE CFTG
-Business email: Finosglabal@gmail.com
+Business email:cidufefinancialtechnology@gmail.com
 
 The platform links use platform search pages where an exact public profile URL/username was not supplied. Replace those links with the exact profile URLs when available.
 
